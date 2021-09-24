@@ -1,1 +1,1 @@
-[![Изображение на бирюзовом фоне с призывом перейти на новый репозиторий pepelandnet](https://user-images.githubusercontent.com/36849286/134744269-5fac481c-90c0-4759-a7c1-4d2417bfd182.png)](https//github.com/pepelandnet)
+[![Изображение на бирюзовом фоне с призывом перейти на новый репозиторий pepelandnet](https://user-images.githubusercontent.com/36849286/134744426-f58d6697-c6f0-48c8-a92d-b7d5ee0b4fbe.png)](https//github.com/pepelandnet)
